@@ -12,3 +12,7 @@ O campeonato foi bem difícil mas acabei levando a melhor contra o bruce lee... 
 
 mãe, foi chamada para jogar beisebol na Arábia saudita e competir internacionalmente pelo país
 
+
+
+alteração
+
